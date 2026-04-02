@@ -1,1 +1,0 @@
-# Banana Elfica diz OIII
